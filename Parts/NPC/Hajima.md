@@ -1,0 +1,1 @@
+New vampire rising to power?

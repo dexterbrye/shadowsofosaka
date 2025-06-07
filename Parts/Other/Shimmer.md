@@ -1,0 +1,5 @@
+- A dangerous supernatural drug spreading across Osaka.
+- Produced using fae magic, vampire blood, and mortal drugs (cocaine?).
+- Makes mortals docile and vulnerable to vampiric control.
+- Connected to the [[Nure-Onna]] faction, led by [[Kammu]].
+- Its production associated with #vampire splinter groups, causing turmoil within the vampire community.
